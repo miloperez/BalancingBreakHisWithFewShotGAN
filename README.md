@@ -1,0 +1,1 @@
+Por favor, revise el reporte adjunto para más información. / Please review the attached report for more information.
